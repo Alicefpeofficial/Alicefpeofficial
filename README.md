@@ -5,13 +5,7 @@
 ->%#800080%𝘚𝘩𝘦%%%#CBC3E3%𐙚%%%#800080%𝘏𝘦𝘳%%<-
 ->%#800080%𝘔𝘪%%%#CBC3E3%𝘯𝘰%%%#800080%𝘳%%![](https://64.media.tumblr.com/5c22f669fa5b54deba6738b30e318604/677352c2cfecb1b5-f2/s75x75_c1/6efd6f80160dc0da5ad871a208c9d5df8ca57d60.gifv)%#800080% 𝘔𝘢%%%#CBC3E3%𝘺 *19*%%%#800080%𝘵𝘩%%<-
 
-->%#CBC3E3%  [⌞¹⌝](https://rentry.co/Alicefpeofficial_I#text)ㅤ[⌞²⌝](https://rentry.co/Alicefpeofficial_II#text)ㅤ [⌞³⌝](https://rentry.co/Alicefpeofficial_III#text)  %%<-
-
-
-
-
-
-
+->%#CBC3E3%  [⌞¹⌝](https://rentry.co/Alicefpeofficial_I#text) ㅤ ㅤ[⌞²⌝](https://rentry.co/Alicefpeofficial_II#text)ㅤ ㅤ [⌞³⌝](https://rentry.co/Alicefpeofficial_III#text)  %%<-
 
 
 
