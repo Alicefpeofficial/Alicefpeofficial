@@ -10,12 +10,6 @@
 
 
 
-
-
-
-
-
-
 ---
 
 ->%#800080%ᵍʳᵃᵖʰⁱᶜˢ ᵇʸ%% %#CBC3E3%[ᵖˡᵉᵃˢᵃⁿᵗᵇʳᵘˢʰ](https://www.tumblr.com/pleasantbrush)%% %#800080%ᵈⁱᵛⁱᵈᵉʳ ᵇʸ%% %#CBC3E3%[ᴾˡᵘᵗⁱˢᵐ](https://www.tumblr.com/plutism)%%<-
