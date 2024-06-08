@@ -1,20 +1,25 @@
-<div align="center">
-𝘧𝘳𝘪𝘦𝘯𝘥𝘭𝘺 𝘤𝘰𝘮𝘱𝘶𝘵𝘪𝘯𝘨 𝘮𝘢𝘤𝘩𝘪𝘯𝘦 
+->![](https://64.media.tumblr.com/75101df02ba332426401d635e7f4bbe3/bce8dca2985aa844-2d/s400x600/259a9797c53acd0f000f8a8c92c62fd6ceb9168c.gifv)<-
+->![](https://64.media.tumblr.com/75a379f440206bacac76d466c6df2712/227da40456c2f797-97/s400x600/533d45bdff3309267fd4f2a9564371202fd6cb2b.pnj)<-
+->%#800080%𝘡%%%#CBC3E3%𝘰𝘺%%%#800080%𝘢%%![](https://64.media.tumblr.com/2d6e6f544bbb9cb338442a40a4d8a319/7ff15572939cc448-3c/s75x75_c1/0750e3a6b920f022d1dd784f1d55ded5db7092b4.gifv)<-
+->%#CBC3E3%𝘉%%%#800080%𝘪%%![](https://64.media.tumblr.com/013815f1afbfbb6bc382a9c130205da2/7f4c2dc584095345-48/s75x75_c1/4987f1a097862b73011723fea65b70f674c20c34.pnj)<-
+->%#800080%𝘚𝘩𝘦%%%#CBC3E3%𐙚%%%#800080%𝘏𝘦𝘳%%<-
+->%#800080%𝘔𝘪%%%#CBC3E3%𝘯𝘰%%%#800080%𝘳%%![](https://64.media.tumblr.com/5c22f669fa5b54deba6738b30e318604/677352c2cfecb1b5-f2/s75x75_c1/6efd6f80160dc0da5ad871a208c9d5df8ca57d60.gifv)%#800080% 𝘔𝘢%%%#CBC3E3%𝘺 *19*%%%#800080%𝘵𝘩%%<-
 
-![](https://64.media.tumblr.com/646b787ee86fbd325f7f9832bc5b67ca/9b7ddb5905533fa5-d4/s2048x3072/91eb9162d532dd3c8433d9b2c55419786ca38a05.pnj)
+->%#CBC3E3%  [⌞¹⌝](https://rentry.co/Alicefpeofficial_I#text) ㅤ ㅤ[⌞²⌝](https://rentry.co/Alicefpeofficial_II#text)ㅤ ㅤ [⌞³⌝](https://rentry.co/Alicefpeofficial_III#text)  %%<-
 
-![](https://64.media.tumblr.com/ae69dc7bf36e64649e7343c0d192f90c/f136a3e83143bf42-c7/s2048x3072/71dc7e95a065e92d9c6c27c888c57533121089b3.pnj)
-![](https://64.media.tumblr.com/e7b405c252d3bf153e577ee35c0f2704/cdcf03bd2afa3ed3-40/s400x600/71a9f5217339bf1f6fb2cccc3cb08ca420a68c31.pnj)
 
-𝘚𝘩𝘦𐙚𝘏𝘦𝘳 ![](https://64.media.tumblr.com/ad90f8b8b0432e58bfbad2f81c2c8ce1/04dfb8c512e3f807-9e/s75x75_c1/3310bc341690b51a36d387228848a5b8841f83d8.gifv) 𝘔𝘪𝘯𝘰𝘳
 
-![](https://64.media.tumblr.com/e3321c96d3229603a0a42bed9facd1c4/abde04dcf33986aa-cd/s75x75_c1/b719fa82f2b0456768bb2ddad5609a45826e625e.gifv) 𝘐𝘕𝘛 𝘢𝘯𝘺𝘵𝘪𝘮𝘦*!* 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘮 𝘯𝘰𝘵 𝘋𝘕𝘐୭𝘋𝘕𝘐𝘜𝘍![](https://64.media.tumblr.com/e3321c96d3229603a0a42bed9facd1c4/abde04dcf33986aa-cd/s75x75_c1/b719fa82f2b0456768bb2ddad5609a45826e625e.gifv)
 
-𝘋𝘕𝘊 𝘮𝘺 𝘱𝘵 𝘴𝘬𝘪𝘯𝘴 ![](https://64.media.tumblr.com/7b23c4e312dfe56a7038549555ad9c5d/09b0656ab042c182-e2/s75x75_c1/e7c47126bce8737d2754af6066ccc4409489de9e.gifv)
 
-[𝘙𝘦𝘯𝘵𝘳𝘺](https://rentry.co/ZoyaALICE) ![](https://64.media.tumblr.com/c8aa16cc2154f2e1b748ee53dd6b2d6e/c50c9ff3c4857006-b6/s75x75_c1/7d2a865260f4c67268b708dcf25c193853bb3615.gifv) [𝘗𝘢𝘵𝘳𝘦𝘰𝘯](https://patreon.com/Lumine143)
+
+
+
+
 
 ---
-ᴬᴸᴵᶜᴱ ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᶠ⁴ˡˡⁱⁿ૧⁻ˢᵗᵃʳʳ](https://www.tumblr.com/f4llinq-starr) ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ᵒⁿ [ᵀᵘᵐᵇˡʳ](https://www.tumblr.com)
-ᴹᵃᵈᵉ ᵇʸ [ᴿᵒˢᵉ](https://github.com/FurinaTheFountain) ᶠᵒʳ [ᶻᵒʸᵃ](https://github.com/Alicefpeofficial)
-![](https://64.media.tumblr.com/712660313138ad61312e97c751bb8c07/c50c9ff3c4857006-57/s75x75_c1/aff20a920e49bdee8e12abebb0414cb512dafa6a.gifv)
+
+->%#800080%ᵍʳᵃᵖʰⁱᶜˢ ᵇʸ%% %#CBC3E3%[ᵖˡᵉᵃˢᵃⁿᵗᵇʳᵘˢʰ](https://www.tumblr.com/pleasantbrush)%% %#800080%ᵈⁱᵛⁱᵈᵉʳ ᵇʸ%% %#CBC3E3%[ᴾˡᵘᵗⁱˢᵐ](https://www.tumblr.com/plutism)%%<-
+->%#800080%ᴹᵃᵈᵉ ᵇʸ%%  %#CBC3E3%[ʳᵒˢᵉ](https://github.com/FurinaTheFountain)%% %#800080%ᶠᵒʳ%% %#CBC3E3%[ᶻᵒʸᵃ](https://github.com/Alicefpeofficial)%%<-
+
+
+->![](https://64.media.tumblr.com/307e3b00a4be60398acd1e1880cc657b/677352c2cfecb1b5-e1/s75x75_c1/cc3ae10f6480f14687c6aaf582b94166e4732bda.gifv)<-
